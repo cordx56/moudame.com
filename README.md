@@ -1,0 +1,3 @@
+# moudame.com
+
+もうだめ
